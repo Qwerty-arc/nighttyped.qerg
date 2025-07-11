@@ -1,1 +1,1 @@
-# nighttyped.github.io
+# nighttyped
